@@ -1,4 +1,4 @@
-Matthew King (he/him)
+**Matthew King (he/him)**
 
 Welcome to my Github profile!
 
